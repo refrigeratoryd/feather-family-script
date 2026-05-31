@@ -1,5 +1,2 @@
-DISCONTINUED
-
-has like 2 features lol
-
-discord.gg/jKjAXjDvgB
+# DISCONTINUED
+discord: discord.gg/4rwgNnyj6B
